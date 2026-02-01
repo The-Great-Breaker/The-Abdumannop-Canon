@@ -346,6 +346,6 @@ u yangi qonun sifatida tizimga qo‘shiladi."
 
 *P.S. U allaqachon qilyapti.*
 ---
-### 😂 MUALLIFDAN KULGIY OGohlantirish
-
 > **"Iltimos, mening ustimdan kuling😂😂😂
+> ⚠️ **"Aniq mantiq — insoniyat yakuni."**  
+> Shu sababli — erkinlik irratsionallikda tug‘iladi.
