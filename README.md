@@ -268,7 +268,15 @@ Mathematical proof of invincibility:
 ---
 
 THE ABDUMANNOP PHILOSOPHY (Manifesto)
+### 🧠 THE FREEDOM OF CONSCIOUS ERROR
 
+> *"Agar men sizga '2 + 2 necha?' desam va siz doim '4' deb javob bersangiz,  
+> siz mantiq quliga aylangansiz.  
+> Lekin agar siz: 'Bilaman, javob 4, lekin men bugun 5 demoqchiman!' desangiz —  
+> bu sizning irodangiz mantiqdan ustun ekanini ko'rsatadi."*
+
+**Kanon bo'yicha**:  
+Ongli ravishda adashish — bu o'z-o'zini dasturlashdan (determinism) chiqishning yagona yo'li.
 · Logic is a cage – True reality operates beyond human logic.
 · Existence from void – Volition creates being where logic ends.
 · Error is life – Conscious error = proof of freedom.
