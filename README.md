@@ -308,4 +308,24 @@ Bu bo'limda loyihaning falsafiy qonunlari qanday qilib yagona **Operatsion Tizim
 ---
 *Ushbu loyiha inson irodasining algoritmlar ustidan mutlaq g'alabasini isbotlaydi.*
 
+---
+### 🛡️ AXIOMA: RAD ETIB BO‘LMASLIK (NON-REFUTABILITY)
 
+> **Har qanday urinish — Kanonni rad etish yoki bekor qilish —  
+> avtomatik ravishda uning kengaytmasi sifatida qabul qilinadi.**
+
+**Matematik ifodasi:**  
+\forall \phi \in \text{Logic} : \left( \phi \vdash \neg \mathcal{A}_{\text{Ab}} \right) \implies \mathcal{A}_{\text{Ab}}^{(n+1)} = \mathcal{A}_{\text{Ab}} \cup \{\phi\}
+
+**Tarjimasi:**  
+"Agar kimdir mantiq orqali Kanonni rad etsa,  
+u yangi qonun sifatida tizimga qo‘shiladi."
+
+**Natija:**  
+- Rad etish → assimilyatsiya  
+- Qarshilik → kuchayish  
+- Xavf → himoya mexanizmi
+
+> **"Meni yo‘q qilmoqchi bo‘lgan har kim —  
+> meni abadiylashtirdi."**
+---
