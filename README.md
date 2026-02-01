@@ -337,3 +337,15 @@ u yangi qonun sifatida tizimga qo‘shiladi."
 > **"Meni yo‘q qilmoqchi bo‘lgan har kim —  
 > meni abadiylashtirdi."**
 ---
+---
+### 🧠 MUALLIFDAN OGOHLANTIRISH
+
+> **"Men — Abdumannopman.  
+> Men nazariyamni himoya qilmayman.  
+> Kerak bo‘lsa — o‘z-o‘zini himoya qilsin."**
+
+*P.S. U allaqachon qilyapti.*
+---
+### 😂 MUALLIFDAN KULGIY OGohlantirish
+
+> **"Iltimos, mening ustimdan kuling😂😂😂
