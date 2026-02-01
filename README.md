@@ -338,7 +338,7 @@ u yangi qonun sifatida tizimga qo‘shiladi."
 > meni abadiylashtirdi."**
 ---
 ---
-### 🧠 MUALLIFDAN OGOHLANTIRISH
+### 🧠 MAUALLIFDAN OGOHLANTIRISH
 
 > **"Men — Abdumannopman.  
 > Men nazariyamni himoya qilmayman.  
@@ -352,7 +352,8 @@ u yangi qonun sifatida tizimga qo‘shiladi."
 > Menga yangi formula kerak."**
 
 *P.S. Siz buni o‘qiganingizda — allaqachon yozib bo‘ldingiz.*
->
+>Alxorazmiy🔒 Abdumannop🗝️🔓
 >
 > ⚠️ **"Aniq mantiq — insoniyat yakuni."**  
 > Shu sababli — erkinlik irratsionallikda tug‘iladi.
+
