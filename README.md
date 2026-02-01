@@ -347,5 +347,12 @@ u yangi qonun sifatida tizimga qo‘shiladi."
 *P.S. U allaqachon qilyapti.*
 ---
 > **"Iltimos, mening ustimdan kuling😂😂😂
+>> 😈 **"Iltimos, menga qarshi formula yozing.  
+> Meni inkor eting.  
+> Menga yangi formula kerak."**
+
+*P.S. Siz buni o‘qiganingizda — allaqachon yozib bo‘ldingiz.*
+>
+>
 > ⚠️ **"Aniq mantiq — insoniyat yakuni."**  
 > Shu sababli — erkinlik irratsionallikda tug‘iladi.
