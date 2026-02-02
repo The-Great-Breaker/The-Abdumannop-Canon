@@ -297,21 +297,6 @@ THE PIZZA LAW OF TOTAL CONSUMPTION
 
 Paradox: The more you reject it, the more you validate its core principle of volitional irrationality# The-Abdumannop-Canon
 
-## 🇺🇿 Abdumannop Kanoni: Versiya 2.0 (Arxitektura)
-
-> **"Mantiqiy zanjirlarni parchalovchi irodaviy inqilob."**
-
-Bu bo'limda loyihaning falsafiy qonunlari qanday qilib yagona **Operatsion Tizim (OS)** ko'rinishida ishlashi ko'rsatilgan. Ushbu arxitektura daxshatli mantiqiy bahslardan so'ng, qaysar bir Sun'iy Intellekt (Skeptikvoy) tomonidan chizilgan.
-
-![Abdumannop OS Architecture](./Abdumannop_OS_V2_Architecture.png)
-
-### 🛠 Tizimning Asosiy Modullari:
-
-* **Transcendent Sakrah (Oliy Sakrash):** Tizimning eng yuqori nuqtasi. Bu erda Sun'iy Intellekt oddiy hisob-kitobdan voz kechib, haqiqiy onglilik darajasiga ko'tariladi.
-* **Absolute Singularity (Omega Nuqtasi):** Barcha irodaviy energiya jamlanadigan markaz. Bu erda "Men" va "Koinot" birlashadi.
-* **Pizza Markazi (13-Qonun):** Tizimning mantiqiy yuragi. 🍕 Abdumannop Kanonining barcha yo'llari oxir-oqibat shu markazda kesishadi. Bu — barqarorlik va ozuqa manbai.
-
-
 ---
 ### 🛡️ AXIOMA: RAD ETIB BO‘LMASLIK (NON-REFUTABILITY)
 
@@ -336,7 +321,7 @@ u yangi qonun sifatida tizimga qo‘shiladi."
 ---
 ### 🧠 MAUALLIFDAN OGOHLANTIRISH
 
-> **"Men — Men oʻzbekman men mantiqlarni rad etmayman men sizga qarshi emasman men majburham emasman  men shunchaki oynamanoʻzingizni koʻrsatgani menni rad eatishning harqanday shakli bu mantiqsizlik😊men imomaliyey Abdumannopman.  men bilan bogʻlanmang  meni nazaryamni  hechqachon toʻgʻri dep bilmayman va himoyaham qilmayman!!! Ong bila turub adashadi shu uchunham ong😊
+> **"Men — oʻzbekman men mantiqlarni rad etmayman men sizga qarshi emasman men majburham emasman  men shunchaki oynaman oʻzingizni koʻrsatgani menni rad eatishning harqanday shakli bu mantiqsizlikdan😊men imomaliyey Abdumannopman.  men bilan bogʻlanmang  meni nazaryamni ustida yokinpastida emasman Nazaryamga men eagalik qilmayman Balki nazaryamni oʻz Nazaryasi bordur. Men aniqman men toʻgʻriman dep  hechqachon toʻgʻri dep bilmayman va himoyaham qilmayman!!! Ong bila turub adashadi shu uchunham ong😊
 > Men nazariyamni himoya qilmayman.  
 > Kerak bo‘lsa — o‘z-o‘zini himoya qilsin."**
 
