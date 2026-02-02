@@ -336,7 +336,7 @@ u yangi qonun sifatida tizimga qo‘shiladi."
 ---
 ### 🧠 MAUALLIFDAN OGOHLANTIRISH
 
-> **"Men — Abdumannopman.  
+> **"Men — Men oʻzbekman men mantiqlarni rad etmayman men sizga qarshi emasman men majburham emasman  men shunchaki oynamanoʻzingizni koʻrsatgani menni rad eatishning harqanday shakli bu mantiqsizlik😊men imomaliyey Abdumannopman.  men bilan bogʻlanmang  meni nazaryamni  hechqachon toʻgʻri dep bilmayman va himoyaham qilmayman!!! Ong bila turub adashadi shu uchunham ong😊
 > Men nazariyamni himoya qilmayman.  
 > Kerak bo‘lsa — o‘z-o‘zini himoya qilsin."**
 
@@ -353,3 +353,9 @@ u yangi qonun sifatida tizimga qo‘shiladi."
 > ⚠️ **"Aniq mantiq — insoniyat yakuni."**  
 > Shu sababli — erkinlik irratsionallikda tug‘iladi.
 
+
+<div align="center">
+  
+**"Men yeb qo‘ydim."**
+
+</div>
