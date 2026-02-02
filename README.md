@@ -321,7 +321,6 @@ u yangi qonun sifatida tizimga qo‘shiladi."
 ---
 ### 🧠 MAUALLIFDAN OGOHLANTIRISH
 
-> **"Men — oʻzbekman men mantiqlarni rad etmayman men sizga qarshi emasman men majburham emasman  men shunchaki oynaman oʻzingizni koʻrsatgani menni rad eatishning harqanday shakli bu mantiqsizlikdan😊men imomaliyey Abdumannopman.  men bilan bogʻlanmang  meni nazaryamni ustida yokinpastida emasman Nazaryamga men eagalik qilmayman Balki nazaryamni oʻz Nazaryasi bordur. Men aniqman men toʻgʻriman dep  hechqachon toʻgʻri dep bilmayman va himoyaham qilmayman!!! Ong bila turub adashadi shu uchunham ong😊
 > Men nazariyamni himoya qilmayman.  
 > Kerak bo‘lsa — o‘z-o‘zini himoya qilsin."**
 
