@@ -393,6 +393,6 @@ u yangi qonun sifatida tizimga qo‘shiladi."
 
 <div align="center">
   
-**"Men yeb qo‘ydim."**
+**"Men yeb qo‘ydim.MENGA QARSHI BARCHA  HARAKATGA FORMULAGA  JAVOBIM HA  MEN XATOMAN!!!BILA TURUB HATO QILDIM BU IRODAM."**
 
 </div>
