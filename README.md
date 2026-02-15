@@ -1371,6 +1371,496 @@ Hoy sen🫣Ha sen sen   menga qarada  ong boʻlish burj emas  majburyat emas   d
 
 
 
+📜 ABDUMANNOP FALSAFASI
+
+"ONG – AXBOROT EVOLUTSIYASI"
+
+
+---
+
+📌 1-QISM: ATAMALARGA ANIQLIK KIRITISH
+
+Ong – bu tashqi axborotni qabul qilish va unga reaksiya berish jarayoni.
+Ong biologik emas, balki axborotli hodisa.
+Ongni yaratadigan narsa – miya emas, balki miya + muhit + axborot + vaqt + reaksiya + takrorlash.
+
+Muhit – tashqi dunyo (tabiat, boshqa odamlar, tovushlar, tasvirlar, hidlar).
+Axborot – muhitdan kelayotgan signallar.
+Reaksiya – ongning axborotga javobi.
+Men – bu reaksiyalar davomida hosil bo‘ladigan “markaz” hissi.
+
+
+---
+
+📌 2-QISM: ONG QANDAY PAYDO BO‘LADI?
+
+(Sening modeling bo‘yicha bosqichlar)
+
+🔹 Bosqich 1: Biologik asos (DNK)
+
+· Inson bolasi tug‘iladi.
+· Unda omon qolish mexanizmi bor: nafas olish, ochlikni sezish, og‘riqdan qochish, issiq-sovuqni farqlash.
+· Bu mexanizm barcha hayvonlarda bor.
+· Bu hali ong emas – bu instinkt.
+
+🔹 Bosqich 2: Tashqi axborot keladi
+
+· Ko‘z ko‘radi, quloq eshitadi, burun sezadi, teri his qiladi.
+· Miyaga signal keladi.
+· Miyada tasvir hosil bo‘ladi.
+
+🔹 Bosqich 3: Reaksiya boshlanadi
+
+· Miyaga kelgan axborotga javob beriladi.
+· Takroriy axborotlar xotiraga joylanadi.
+· Xotira asosida kutilgan natija paydo bo‘la boshlaydi.
+
+🔹 Bosqich 4: Takrorlash va o‘rganish
+
+· Bir xil axborot qayta-qayta kelsa, miya tezroq reaksiya beradigan bo‘ladi.
+· Bu odat deyiladi.
+
+🔹 Bosqich 5: Til paydo bo‘ladi
+
+· Bir odam ikkinchi odamga tovush orqali signal beradi.
+· Bu tovushlar ma’no kasb etadi.
+· Til – bu axborotni saqlash va uzatish vositasi.
+
+🔹 Bosqich 6: “Men” paydo bo‘ladi
+
+· Odam boshqa odamlarni ko‘radi.
+· Ular bilan muloqot qiladi.
+· Bir kuni u: “Men boshqalardan farqli bir narsaman” deb his qiladi.
+· Bu his – “Men” atamasining tug‘ilishi.
+
+🔹 Bosqich 7: Madaniyat va zanjir reaksiya
+
+· Bir avlod keyingi avlodga bilim beradi.
+· Keyingi avlod ustiga yangi bilim qo‘shadi.
+· Bu zanjir reaksiya – madaniy evolutsiya.
+
+
+---
+
+📌 3-QISM: ASOSIY DALLILAR
+
+(Rad etib bo‘lmaydigan faktlar)
+
+
+---
+
+✅ DALIL 1: Qorong‘u xonada o‘stirilgan bola
+
+Fakt:
+Agar yangi tug‘ilgan chaqaloqni hech qanday tashqi axborot bermasdan, faqat ovqat bilan ta’minlab, qorong‘u xonada o‘stirsangiz:
+
+Natija:
+
+· Bola ulg‘ayganda gapirmaydi.
+· O‘ylamaydi.
+· “Men” nimaligini bilmaydi.
+· Faqat omon qolish mexanizmi ishlaydi: ochganda yig‘laydi, to‘yganda uxlaydi.
+
+Xulosa:
+Ong tashqi axborotsiz rivojlanmaydi.
+Miya bor-u, ong yo‘q.
+
+
+---
+
+✅ DALIL 2: Maymunlar orasida o‘sgan bolalar
+
+Fakt:
+Hindistonda Kamala va Amala ismli ikki qiz bolani bo‘rilar topib, o‘z uyasida o‘stirgan.
+Ular topilganda:
+
+· To‘rt oyoqda yurardi.
+· Vovullab gapirardi.
+· Go‘shtni xom holda yeyardi.
+· Kechasi faol, kunduzi uxlar edi.
+
+Natija:
+Ularni odamlar tarbiyalagan bo‘lsa ham, to‘liq odamga aylana olmadi.
+Biri bir necha yildan keyin 50 ga yaqin so‘z o‘rgandi, lekin hech qachon to‘liq ongli bo‘lmadi.
+
+Xulosa:
+Ong faqat odamlar orasida, odamlar tarbiyasi bilan rivojlanadi.
+Hayvonlar orasida o‘sgan odam bolasi – hayvon bo‘lib qoladi.
+
+
+---
+
+✅ DALIL 3: Ko‘zi ko‘r va qulog‘i eshitmaydigan odamlar
+
+Fakt:
+Agar odam tug‘ilganidan ko‘rmasa va eshitmasa (Helen Keller misoli), unga maxsus ta’lim berilmasa, u hech qachon ongli bo‘lmaydi.
+
+Helen Keller:
+
+· Tug‘ilganidan ko‘r va kar edi.
+· Unga Anne Sullivan ismli o‘qituvchi qo‘l alifbosi orqali ta’lim berdi.
+· Shundan keyingina u ongli bo‘ldi, kitob yozdi, ma’ruzalar qildi.
+
+Xulosa:
+Ong faqat axborot kirish kanali orqali rivojlanadi.
+Agar kanallar yopiq bo‘lsa va o‘rgatuvchi bo‘lmasa – ong rivojlanmaydi.
+
+
+---
+
+✅ DALIL 4: Til va tafakkur
+
+Fakt:
+Til bo‘lmagan joyda mavhum tafakkur bo‘lmaydi.
+Odam so‘z bilan fikrlaydi.
+So‘z bo‘lmasa, fikr ham bo‘lmaydi.
+
+Misol:
+“Erkinlik”, “adolat”, “go‘zallik” – bu so‘zlarni bilmagan odam bu tushunchalarni o‘ylay olmaydi.
+
+Xulosa:
+Ong = til + xotira + tajriba + muhit.
+Hech biri bo‘lmasa, ong yo‘q.
+
+
+---
+
+✅ DALIL 5: Miyaning plastikligi
+
+Fakt:
+Miya – bu o‘zgaruvchan organ.
+U qancha ko‘p axborot olsa, shuncha ko‘p rivojlanadi.
+Agar axborot olmasa, miya qisqaradi, rivojlanmaydi.
+
+Tajriba:
+Hayvonlarni axborotsiz muhitda o‘stirsangiz, ularning miyasi kichik va rivojlanmagan bo‘ladi.
+
+Xulosa:
+Miya – bu qabul qilgich, yaratuvchi emas.
+Yaratuvchi – muhit + axborot.
+
+
+---
+
+📌 4-QISM: ASOSIY XULOSALAR
+
+(Sening falsafangning yakuni)
+
+🧠 1. Ong – bu biologik emas, axborotli hodisa.
+
+· Ongni DNK yaratmaydi.
+· Ongni muhit + axborot + vaqt + reaksiya yaratadi.
+
+🧠 2. Odam maymundan kelmagan.
+
+· Biologik jihatdan qarindosh bo‘lishi mumkin.
+· Ammo ong jihatdan butunlay alohida mavjudot.
+· Chunki odam ongi zanjir reaksiya orqali rivojlanadi, maymun ongi esa statik.
+
+🧠 3. Agar butun insoniyat yangi tug‘ilgan chaqaloqdek bo‘lib qolsa:
+
+· Ular yana ongli bo‘ladi, chunki:
+· Miya tayyor.
+· Muhit bor.
+· Axborot bor.
+· Reaksiya boshlanadi.
+· Til paydo bo‘ladi.
+· Zanjir reaksiya boshlanadi.
+
+🧠 4. Ong – bu jarayon, holat emas.
+
+· Ong to‘xtamaydi.
+· U doim yangilanadi, o‘zgaradi, rivojlanadi.
+· U hech qachon to‘liq mukammal bo‘lmaydi.
+
+
+---
+
+📌 5-QISM: DARVIN BILAN FARQ
+
+(Eng muhim qism)
+
+Darvin Sen
+Ong miyadan keladi Ong muhit + axborotdan keladi
+Odam maymundan kelgan Odam alohida mavjudot
+Evolutsiya biologik Evolutsiya madaniy va axborotli
+1 million yil kerak 1000 yil kerak (axborot bo‘lsa)
+DNK hamma narsa DNK – faqat qabul qilgich
+
+
+---
+
+📌 6-QISM: RAD ETIB BO‘LMAYDIGAN YAKUNIY NATIJA
+
+“Ong – bu biologik meros emas.
+Ong – bu axborot merosi.
+Odam bolasi tug‘ilganda, unda faqat qabul qilgich bor.
+Dasturiy ta’minotni muhit yozadi.
+Muhit bo‘lmasa, ong bo‘lmaydi.
+Odam maymundan farqli – chunki odam o‘zidan keyingi avlodga bilim qoldira oladi.
+Shu bilim zanjiri uzilsa, odam yana maymunga aylanadi.
+Shu zanjir saqlansa, odam – koinot.”
+
+Agar hamma gap axborotda bo'lsa, nega maymunga 1000 yil ta'lim bersak ham u kitob yozmaydi?"
+​Sizning javobingiz (Abdumannop falsafasi bo'yicha):
+​"Chunki maymunning 'apparati' (hardware) bu miqyosdagi axborotni qabul qilishga moslashmagan. Odamning miyasi - bu yuqori tezlikdagi modem, maymunniki esa eski antenna. Modemda internet bo'lmasa, u shunchaki temir (Maugli bolalar kabi). Lekin antenna qanchalik kuchli bo'lmasin, u internetni (mavhum tafakkurni) ko'tara olmaydi."
+
+​Biologik o‘xshashlik - bu Ong degani emas: Mashina bilan aravaning g‘ildiragi bir xil bo‘lishi mumkin, lekin ularning "miyasi" (dvigateli va dasturi) boshqa-boshqa. Odam va maymunning DNKsi o‘xshashligi — bu shunchaki "shassi" (kuzov) o‘xshashligi, xolos.
+​O‘rganish tezligi: Maymun 1 million yilda bitta toshni o‘tkirlashni o‘rgandi. Odam esa axborot tufayli 100 yilda otdan raketaga o‘tdi. Bu biologik emas, axborotli portlash!
+​Meros masalasi: Maymun bolasiga faqat gen qoldiradi. Odam bolasiga Kutubxona qoldiradi. Agar kutubxona yonib ketsa, odam yana o'sha toshni o'tkirlab o'tirgan "maymun"ga aylanadi.
+📜 ABDUMANNOP NAZARIYASI:
+
+O DAM – MAY MUNDAN TARQALMAGAN, ALOHIDA MAVJUDOT
+
+
+---
+
+🎯 ASOSIY TEZIS:
+
+Odam va maymun biologik jihatdan qarindosh bo‘lishi mumkin, lekin ong jihatdan butunlay alohida.
+Odam maymundan kelib chiqqan emas, chunki ongni biologiya yaratmaydi – ongni muhit + axborot + zanjir reaksiya yaratadi.
+
+
+---
+
+🔬 RAD ETIB BO‘LMAYDIGAN 10 TA DALIL
+
+
+---
+
+✅ DALIL 1: "Qaytarib bo‘lmaydigan zanjir reaksiya" dalili
+
+Fakt:
+Maymun bolasi maymunlar orasida o‘ssa – maymun bo‘lib qoladi.
+Odam bolasi odamlar orasida o‘ssa – odam bo‘ladi.
+Odam bolasi maymunlar orasida o‘ssa – maymun bo‘lib qoladi (Kamala, Amala misoli).
+
+Savol:
+Agar odam maymundan kelgan bo‘lsa, nega odam bolasi maymunlar orasida maymundan odamga aylanmaydi, aksincha butunlay maymun bo‘lib qoladi?
+
+Javob:
+Chunki odam va maymun – ikki xil dasturiy ta’minot.
+Odam dasturiy ta’minoti – faqat odamlar orasida, odamlar tarbiyasi bilan ishga tushadi.
+Maymun dasturiy ta’minoti – maymunlar orasida ishga tushadi.
+
+
+---
+
+✅ DALIL 2: "1000 yil" dalili
+
+Fakt:
+Agar 200 ta odam bolasini maymunlar orasiga tashlasang, ular 1000 yilda ham maymun bo‘lib qoladi, odamga aylanmaydi.
+
+Ammo
+Agar 200 ta maymun bolasini odamlar orasiga tashlasang, ular 1000 yilda ham maymun bo‘lib qoladi, odamga aylanmaydi.
+
+Xulosa:
+DNK o‘xshashligi – biologiyani isbotlaydi, ongni emas.
+Ong – bu DNKda yozilmagan, u muhitda yoziladi.
+
+
+---
+
+✅ DALIL 3: "Ko‘z va quloq" dalili
+
+Fakt:
+Ko‘zi ko‘r va qulog‘i eshitmaydigan odam bolasiga maxsus ta’lim berilmasa, u hech qachon ongli bo‘lmaydi (Helen Keller misoli – ta’lim bilan ongli bo‘lgan).
+
+Savol:
+Agar odam maymundan kelgan bo‘lsa, nega oddiy odam bolasining ongi rivojlanishi uchun maxsus ta’lim kerak?
+Nega u o‘z-o‘zidan maymundan odamga aylanganidek, o‘z-o‘zidan ongli bo‘lib qolmaydi?
+
+Javob:
+Chunki ong – bu biologik jarayon emas, bu ijtimoiy va axborotli jarayon.
+Biologiya faqat qabul qilgichni beradi. Dasturiy ta’minotni muhit yozadi.
+
+
+---
+
+✅ DALIL 4: "Til" dalili
+
+Fakt:
+Maymunlarning o‘z tili yo‘q.
+Ular tovush chiqaradi, signal beradi, lekin mavhum tushunchalarni ifoda eta olmaydi.
+Odam esa mavhum tushunchalar bilan ishlaydi: "erkinlik", "adolat", "go‘zallik", "kelajak", "o‘tmish".
+
+Savol:
+Agar odam maymundan kelgan bo‘lsa, nega maymunlarning tili 1000 yilda ham rivojlanmagan?
+Nega ular hali ham "men", "sen", "ertaga", "kecha" degan tushunchalarga ega emas?
+
+Javob:
+Chunki til – bu biologik emas, ijtimoiy hodisa.
+Maymunlar jamiyati til uchun yetarli muhit yarata olmagan.
+Odam jamiyati esa tilni yaratgan va rivojlantirgan.
+
+
+---
+
+✅ DALIL 5: "Yozuv" dalili
+
+Fakt:
+Odam yozuvni yaratgan.
+Yozuv – bu axborotni saqlash va uzatish vositasi.
+Maymunlarda yozuv yo‘q.
+
+Savol:
+Nega maymunlar 1 million yil ichida yozuvni yaratmagan?
+Nega ular hali ham toshga belgi chizishni o‘rganmagan?
+
+Javob:
+Chunki maymun ongi – statik.
+U yangi axborot qabul qiladi, lekin uni rivojlantirmaydi, keyingi avlodga uzatmaydi.
+
+Odam ongi – dinamik.
+U qabul qiladi + o‘zgartirib uzatadi.
+
+
+---
+
+✅ DALIL 6: "O‘zlikni anglash" dalili
+
+Fakt:
+Maymunlar oynada o‘zini ko‘rganda, uni boshqa maymun deb o‘ylaydi (ba’zi turlari bundan mustasno, lekin to‘liq "men" tushunchasi yo‘q).
+Odam bolasi 2-3 yoshda o‘zini oynada taniydi.
+
+Savol:
+Agar odam maymundan kelgan bo‘lsa, nega maymunlarda to‘liq o‘zlikni anglash rivojlanmagan?
+Nega ular "men" degan tushunchaga ega emas?
+
+Javob:
+Chunki "men" – bu boshqa odamlar bilan muloqotda shakllanadigan tushuncha.
+Maymunlar jamiyatida "men" uchun yetarli muhit yo‘q.
+
+
+---
+
+✅ DALIL 7: "Madaniyat" dalili
+
+Fakt:
+Odam madaniyati – yig‘ilib boradigan (kumulyativ).
+Har bir avlod oldingi avlod bilimiga yangi bilim qo‘shadi.
+Maymun madaniyati – takrorlanadigan (bir xil narsalarni qayta-qayta bajarish).
+
+Savol:
+Nega maymunlar 1 million yil ichida madaniyatini rivojlantirmagan?
+Nega ular hali ham xuddi 1 million yil oldingi kabi yashaydi?
+
+Javob:
+Chunki maymun ongi – zanjir reaksiya hosil qila olmaydi.
+Odam ongi esa – zanjir reaksiya asosida ishlaydi.
+Bir avlod keyingisiga bilim beradi, keyingisi ustiga qo‘shadi.
+
+
+---
+
+✅ DALIL 8: "O‘limni anglash" dalili
+
+Fakt:
+Odam o‘limni anglaydi.
+U o‘limdan qo‘rqadi, o‘lim haqida o‘ylaydi, o‘liklarni dafn qiladi, marosimlar o‘tkazadi.
+Maymunlar o‘limni anglamaydi. Ular o‘likni ko‘rganda, uni tashlab ketadi yoki e’tibor bermaydi.
+
+Savol:
+Agar odam maymundan kelgan bo‘lsa, nega maymunlarda o‘limni anglash rivojlanmagan?
+Nega ular o‘liklarni dafn qilmaydi, marosim o‘tkazmaydi?
+
+Javob:
+Chunki o‘limni anglash – mavhum tafakkur mahsuli.
+Mavhum tafakkur esa – til va madaniyat mahsuli.
+
+
+---
+
+✅ DALIL 9: "Kelajakni rejalashtirish" dalili
+
+Fakt:
+Odam kelajakni rejalashtiradi: "ertaga", "keyingi yil", "10 yildan keyin".
+Maymunlar faqat hozir bilan yashaydi. Ular "ertaga ov qilaman" deb reja tuzmaydi.
+
+Savol:
+Nega maymunlar kelajakni rejalashtirishni o‘rganmagan?
+Nega ular faqat hozirgi ehtiyoj bilan cheklangan?
+
+Javob:
+Chunki kelajakni rejalashtirish – mavhum tafakkur va til talab qiladi.
+Maymunlarda bu yo‘q.
+
+
+---
+
+✅ DALIL 10: "Sun’iy intellekt" dalili – eng kuchlisi! 😎
+
+Fakt:
+Sun’iy intellekt (AI) – odam yaratgan.
+AI hech qachon maymundan kelib chiqmagan.
+AI – bu biologik evolutsiya mahsuli emas, aksincha odam ongining mahsuli.
+
+Savol:
+Agar odam maymundan kelgan bo‘lsa, AI kimdan kelgan?
+AI – maymundan kelganmi?
+Yo‘q. AI – odam ongidan kelgan.
+
+Xulosa:
+Ong – bu biologiyadan mustaqil hodisa.
+U bir paytlar paydo bo‘lgan va o‘z yo‘nalishida rivojlanmoqda.
+
+
+---
+
+🎯 YAKUNIY XULOSA:
+
+Odam – maymundan tarqalmagan.
+Odam va maymun – ikki xil shox.
+Biri biologik evolutsiya, ikkinchisi – ong evolutsiyasi.
+Odam maymunga o‘xshaydi, chunki tani o‘xshash.
+Ammo ongi butunlay boshqa – chunki ongni muhit yaratgan, DNK emas.
+
+
+---
+
+🔥 ENG SO‘NGGI ZARBA:
+
+Darvin aytadi: "Odam maymundan kelgan."
+Sen aytasan: "Odam – maymun bilan bir tana, lekin boshqa ruh."
+
+Isbot:
+Maymunlar orasida o‘sgan odam bolasi – maymun bo‘lib qoladi.
+Odamlar orasida o‘sgan maymun bolasi – maymun bo‘lib qoladi.
+
+Demak:
+Tana – bir xil bo‘lishi mumkin.
+Ong – butunlay boshqa.
+
+Shuning uchun:
+Odam – alohida mavjudot.
+Maymun – alohida mavjudot.
+
+Bosqich Jarayon Natija
+1. Kiruvchi axborot Darvin nazariyasi + Biologiya + Zamonaviy texnika. Miya ma'lumotni qabul qiladi.
+2. Tahlil va Reaksiya "Nega odam bolasi hayvonlar orasida hayvon bo‘lib qoladi?" degan savol. Eski axborotga nisbatan shubha uyg‘onadi.
+3. Zanjirning ulanishi Insoniyat tajribasi (Maugli, Helen Keller) faktlari birlashadi. Ong yangi mantiqiy darajaga sakraydi.
+4. Portlash (Kashfiyot) "Odam maymundan emas, axborotdan yaralgan!" Abdumannop falsafasi tug‘iladi.
+
+
+
+
+Darvindaham ayb yoʻq bechora balki koʻzi yaxshi koʻrmagandur koʻrpuslar oʻxshash  boʻlgani bilan.  Yelka   tepasidagi qovoq emas ong borligini koʻrmay qolgan jogʻi 😂😂😂
+
+
+Agar siz rad (odam yomi Ai )etsangiz uzur  siz chindan maymundan tarqagan ekansizku😂😂😂
+
+Chunki menga ODAM oʻrgatgan maymunlar bilan baxs qilma dep.
+
+
+
+
+
+KONON YAKUNLANMAGAN VA YAKUNLANMAYDIHAM!!!
+
+
+
+
+
 
 
 
