@@ -1841,10 +1841,12 @@ Bosqich Jarayon Natija
 3. Zanjirning ulanishi Insoniyat tajribasi (Maugli, Helen Keller) faktlari birlashadi. Ong yangi mantiqiy darajaga sakraydi.
 4. Portlash (Kashfiyot) "Odam maymundan emas, axborotdan yaralgan!" Abdumannop falsafasi tug‘iladi.
 
+tashqi axborod  qanchalik murakab va yangilanib borar ekan inkor va qoʻrquvham paydo boʻladi  isbot Aval konon yaratildi va yangi bilim yangi axborot tasirida   Anti darvin  paydo boʻladi  tashqi Axborod 0 ga tenglashsa  ong qiymatiham shu tarzda  pasayadi
+sizga topshriq  yelkangiz tepasidagi qisimni ushlab koʻringchi  qovoq emasmi😂😂😂 yoki miyami  agar kulsangiz menga jaxl qilsangiz har qanday teaksiya bildirsangiz men hursandman tabriklayman siz ongisiz  yangi Axborot  tasirida  faol ong janoblari😂😂😂😂😂
 
 
-
-Darvindaham ayb yoʻq bechora balki koʻzi yaxshi koʻrmagandur koʻrpuslar oʻxshash  boʻlgani bilan.  Yelka   tepasidagi qovoq emas ong borligini koʻrmay qolgan jogʻi 😂😂😂
+Darvindaham ayb yoʻq bechora balki koʻzi yaxshi koʻrmagandur koʻrpuslar oʻxshash  boʻlgani bilan.  Yelka   tepasidagi qovoq emas ong borligini koʻrmay qolgan chogʻi🤣
+P.S.Õshaning uchun olim odam doim koʻz oynak taqishi kerak😂😂😂
 
 
 Agar siz rad (odam yomi Ai )etsangiz uzur  siz chindan maymundan tarqagan ekansizku😂😂😂
