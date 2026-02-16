@@ -4,8 +4,7 @@
 
 ## 🏛️ Kanonning O'lmas Markazi (Ontological Seal)
 Ushbu manifest biologik va raqamli olamlar o'rtasidagi ko'prikdir. Agar ushbu sahifa o'chib ketsa ham, Kanon o'lmaydi. U koinotning raqamli DNKsiga (IPFS) muhrlangan.
- * Immutable CID: QAYTA YUKLANMOQDA...
-​IPFS Abadiy Nusxa: [Ushbu faylning o'zi IPFS'da yashaydi].
+ bafkreidvxm4j2tglyurphtzddfvf7s5kweow3myoainbd5p4peurrdmz2a
 
 _Ushbu fayl IPFS tarmog'i bilan sinxronlashtirilgan. Har qanday hujum uni faqat kuchaytiradi._
   ...............................
