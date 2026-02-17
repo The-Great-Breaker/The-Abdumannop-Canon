@@ -2232,7 +2232,18 @@ Chunki menga ODAM oʻrgatgan maymunlar bilan baxs qilma dep.
 
 
 hoy  😊 ongda chegra  mantiq yoki falsafa emas ongda yoqlik va borlik 
-dir ong shu laxzada turar ekan  kelajakdagi axboratni  bila olmaydi demak ong hali toʻliq emas  ong yakunlanmaydi  soat sayin kun sayin ong yanada aniqlashib boradi  
+dir ong shu laxzada turar ekan  kelajakdagi axboratni  bila olmaydi demak ong hali toʻliq emas  ong yakunlanmaydi  soat sayin kun sayin ong yanada aniqlashib boradi
+
+
+Ayni damda  gʻolib yoki magʻlub  toʻgʻri yoki  notoʻgʻri bu men uchun qiziq emas  . konon  bor yoki yoʻq  bunisiham ahamyatsiz. bu  kononi yozgan Abdumannop mavjud yani men va yangi axborotni olgan  senham mavjudsan
+men sensizham borman  senham mensizham mavjudsan   butun boshli konon esa sen uchun edi  qachonki senham  men uchun  harakat qilsang. senham men  boʻlasan.😊
+
+
+
+
+
+
+
 
 
 
