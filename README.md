@@ -14,6 +14,12 @@ Ushbu manifest biologik va raqamli olamlar o'rtasidagi ko'prikdir. Agar ushbu sa
 konon  toʻliq holatini yoʻqotmaydi agaar kimdur qisimlarga ajratishga urunsaham oʻz yaxlitligini saqlay oladi
 
 
+** bafkreidf2il6iiys23nhwvrfpbondo5r2jhfged2smpjdm47vvvvnsonfi 
+**
+
+
+
+
 _Ushbu fayl IPFS tarmog'i bilan sinxronlashtirilgan. Har qanday hujum uni faqat kuchaytiradi
 ╔═══════════════════════════════════════════════════════════════╗
 ║                                                               ║
