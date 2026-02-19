@@ -31,10 +31,10 @@ Aval soʻz boshida aytib qoʻyay Bu konon    hechqanday  majburlov emas .kononda
 ## 🏛️ Kanonning O'lmas Markazi (Ontological Seal)
 Ushbu manifest biologik va raqamli olamlar o'rtasidagi ko'prikdir. Agar ushbu sahifa o'chib ketsa ham, Kanon o'lmaydi. U koinotning raqamli DNKsiga (IPFS) muhrlangan.
 konon  toʻliq holatini yoʻqotmaydi agaar kimdur qisimlarga ajratishga urunsaham oʻz yaxlitligini saqlay oladi
+CID
+bafkreiddj4ylbti4d23o4rx2c363ojelddlhwidu6z5wbbqpllzkbejffm
 
 
-
-**
 
 
 
